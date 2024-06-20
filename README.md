@@ -14,4 +14,4 @@
 We enhance shareholder engagement and governance practices, supporting clients through detailed analysis and strategic solutions.
 
 ## Contact Us
-Visit our [contact page](https://allianceadvisors.com/contact-us/) for more information.
+Visit our [contact page](https://allianceadvisors.com/contact/) for more information.
